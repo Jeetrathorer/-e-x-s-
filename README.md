@@ -2,11 +2,11 @@
 
 
 <h2 align="center">
-    ──「  𝐈𝛕ᷟ͢𝚣⃪ꙴ ⋆‌⃝ʜᴏᴛ𓃭 ⃟ᴍᴜsɪᴄ⛦⃕͜༆ 」──
+    ──「 ●⃝ᶫᵒꪜeʟ᭢xᴍᴜsɪᴄ 」──
 </h2>
 
 <p align="center">
-  <img src="https://telegra.ph/file/8a5171024a3bc5569ee3f.jpg">
+  <img src="https://graph.org/file/eeb1c6ad030dee8db34ca.jpg">
 </p>
 
 <p align="center">
